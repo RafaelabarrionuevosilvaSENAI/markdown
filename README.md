@@ -1,4 +1,4 @@
-# Nome: Rafaela :shipit:  
+# Nome: Rafaela :shipit: :octocat:
 
 #### email: yae.miko.lindona.mito@gmail.com :email:
 
